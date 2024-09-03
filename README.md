@@ -25,4 +25,4 @@ The repositories here are a blend of **simulations**, **code**, and **detailed r
 
 Feel free to explore, contribute, or just drop by to say hello! Let's connect and innovate together!
 
-🔗 [LinkedIn](#) | ✉️ [Email Me](#)
+🔗 [https://www.linkedin.com/in/alirezaamiriii](#) | ✉️ [ali.amiri@kntu.ac.ir](#)
